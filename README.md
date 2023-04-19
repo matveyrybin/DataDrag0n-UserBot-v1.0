@@ -14,3 +14,5 @@
 очень легко, здесь нету защиты. Бот полностью опенсурс.
 
 Пон.
+
+![DpzwaexPKr0](https://user-images.githubusercontent.com/75484523/233211202-08c2c4c0-ebf3-45d3-8a19-55dc2910045b.jpg)
